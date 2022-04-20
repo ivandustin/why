@@ -20,6 +20,10 @@ We must work the works of Him who sent me while it is day; night is coming, when
 
 Therefore, every scribe who has been trained for the Kingdom of Heaven is like a master of a house, who brings, out of his treasure, what is new and what is old.
 
+###### John 12:32
+
+And I, when I am lifted up from the earth, will draw all people to myself.
+
 ###### John 15:5
 
 I am the vine; you are the branches. Whoever abides in me and I in him, it is he that bears much fruit; for apart from me you can do nothing.
