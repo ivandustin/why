@@ -6,11 +6,11 @@ That people may believe in Jesus.
 
 When they found him on the other side of the sea, they said to him, "Rabbi, when did you come here?"
 
-Jesus answered them, "Truly, truly, I say to you, you are seeking me, not because you saw signs, but because you ate of the loaves and were filled.
+Jesus answered them and said, "Truly, truly, I say to you, you are seeking me, not because you saw signs, but because you ate of the loaves and were filled.
 
-Do not work for the food that perishes, but for the food that endures to eternal life, which the Son of Man will give to you. For on Him GOD the Father has set His seal."
+Do not work for the food that perishes, but for the food that endures to eternal life, which the Son of Man will give to you. For on Him, GOD the Father has set His seal."
 
-Then they said to him, "What must we do, to be doing the works of GOD?"
+Then they said to him, "What should we do, so that we should work the works of GOD?"
 
 Jesus answered and said to them, "This is the work of GOD, that you believe in Him whom He has sent."
 
