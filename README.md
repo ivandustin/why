@@ -12,7 +12,7 @@ Do not work for the food that perishes, but for the food that endures to eternal
 
 Then they said to him, "What must we do, to be doing the works of GOD?"
 
-Jesus answered them, "This is the work of GOD, that you believe in Him whom He has sent."
+Jesus answered and said to them, "This is the work of GOD, that you believe in Him whom He has sent."
 
 ###### Mark 16:15-16
 
